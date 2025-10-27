@@ -1,0 +1,1 @@
+# P-ytka-zasilaj-ca-i-laduj-ca-akumulator-modu-adowania-bezprzewodowy-bez-gniazdka-230V.
